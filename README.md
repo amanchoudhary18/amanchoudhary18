@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **aman.choudhary9785@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RbgivSwVLe_NAik4mBRkbqLl-cyg1Jqf/view?usp=sharing](https://drive.google.com/file/d/1RbgivSwVLe_NAik4mBRkbqLl-cyg1Jqf/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1IMUCsBVyEijzaQl5odGsEEt5-nJXqOxo/view?usp=drive_link](https://drive.google.com/file/d/1IMUCsBVyEijzaQl5odGsEEt5-nJXqOxo/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
